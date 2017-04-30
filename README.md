@@ -9,4 +9,8 @@ https://www.facebook.com/notes/artificial-intelligence-and-robots/project-%CF%83
 
 https://www.goconqr.com/en-US/groups/54900
 
+http://developer.affectiva.com/
+
+
+
 
