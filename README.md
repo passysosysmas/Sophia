@@ -11,6 +11,6 @@ https://www.goconqr.com/en-US/groups/54900
 
 http://developer.affectiva.com/
 
-
+https://www.notion.so/99dd81c026044d748d2cb14c6b524a58?v=0840254f3fad4878980eaae8ac8844d2
 
 
